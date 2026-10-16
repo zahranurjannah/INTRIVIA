@@ -10,3 +10,6 @@ Intrivia menjadi salah satu pengalaman berkesan dan akan saya ingat di hidup say
 
 ## Kesan Pesan Cluster 17 Sejauh Ini 
 Cluster 17 INTRIVIA 2026 memberi kesan yang positif, dikarenakan mentor yang ramah dan seru dan teman-teman dari departemen yang sama juga sangat friendly dan senang untuk diajak bekerja sama.
+
+## Harapan Kuliah 
+Saya berharap masa kuliah saya bisa menjadi pengalaman yang berkesan baik untuk hidup saya, dan segala ilmu yang saya bisa dapatkan selama kuliah bisa bermanfaat untuk banyak orang. 
